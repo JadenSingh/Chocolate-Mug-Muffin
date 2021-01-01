@@ -1,0 +1,1 @@
+The chocolate Mug Muffin is a fantatsic and mouth-watering desert that is extremely easy to make. It is a filled with chocolate and any other toppings can be added. It is super simple to make and it tastes amazing!

@@ -1,0 +1,1 @@
+The first step in creating this desert would be to get your oreos, and mash them up. Mash them untill they are thin crumbs, then pour them into the mug. Once you have done that, then add a few teaspoons of milk into the mug. Lastly, microwave for 1-2 minutes, and it is done!
